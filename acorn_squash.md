@@ -19,8 +19,8 @@ Dinner and dessert!
 - fresh garlic, 2-3 cloves
 - olive oil
 - paprika (half sharp or Hungarian)
-- tumeric
-- salt/pepper OR ras el hanout and salt/pepper OR tandoori spice and cayenne and salt OR zaatar and pepper OR rosemary and thyme, fresh if you have it
+- turmeric
+- salt/pepper OR ras el hanout and salt/pepper OR tandoori spice and cayenne and salt OR za'atar and pepper OR rosemary and thyme, fresh if you have it
 
 ## Directions
 - Preheat oven to 400°F.
