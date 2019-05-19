@@ -8,8 +8,7 @@ Sauce
 - 1 Tsp Minced Garlic
 - 6-8  Thai Basil Leaves, chiffonade
 
-
-
+Other
 - 3 Tbsp. Canola or Peanut Oil
 - 2-3  Garlic Cloves, minced
 - 1-2   Serrano Chiles, sliced thin
