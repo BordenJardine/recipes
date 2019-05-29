@@ -19,7 +19,7 @@ Other
 - 3-4 Cups Fresh Rice Noodle, separated
 - 1/4 Cup Chinese Rice Wine
 - 1 Cup Thai Basil leaves, loosely Packed
-- ½ Cup Grape Tomatoes, halved
+- ½ Bell Pepper (Green|Red)
 
 
 Combine sauce ingredients in a small bowl and set aside.
