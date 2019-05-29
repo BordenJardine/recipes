@@ -3,7 +3,7 @@ Sauce
 - 2 Tbsp. Sweet Soy Sauce
 - 1 Tbsp. Oyster Sauce
 - 1.5 Tbsp. Fish Sauce
-- 1 Tbsp Sugar
+- 1 Tbsp Brown Sugar
 - 1 Tsp Siracha Sauce
 - 1 Tsp Minced Garlic
 - 6-8  Thai Basil Leaves, chiffonade
