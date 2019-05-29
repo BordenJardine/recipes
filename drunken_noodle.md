@@ -6,6 +6,7 @@ Sauce
 - 1 Tbsp Brown Sugar
 - 1 Tsp Siracha Sauce
 - 1 Tsp Minced Garlic
+- Fresh Minced Ginger
 - 6-8  Thai Basil Leaves, chiffonade
 
 Other
