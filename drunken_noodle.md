@@ -14,7 +14,7 @@ Other
 - 2-3  Garlic Cloves, minced
 - 1-2   Serrano Chiles, sliced thin
 - 2  Eggs
-- 1/3 Lbs. Beef, Pork or Chicken, thin sliced against the grain.
+- 1/3 Lbs. Beef, Pork or Chicken, thin sliced against the grain. (Fried Tofu)
 - 1/2   Medium White Onion, sliced
 - 3-4 Cups Fresh Rice Noodle, separated
 - 1/4 Cup Chinese Rice Wine
